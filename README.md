@@ -6,5 +6,5 @@
 - 📫 You can reach me:
       LinkedIn: https://www.linkedin.com/in/siddarth308/
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Beside development i love spending my time in Competetive Coding, Reading, Playing Games and Working Out.
+- ⚡ : Beside development i love spending my time in Competetive Coding, Reading, Playing Games and Working Out.
 
